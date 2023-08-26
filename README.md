@@ -1,1 +1,1 @@
-# STU_GFW
+# Fxxk_STU_Network
